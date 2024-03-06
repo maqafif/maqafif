@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @maqafif
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning github
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im a man
